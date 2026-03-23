@@ -1,0 +1,2 @@
+# 433770f4-e99a-4769-869a-56ccb850d840-hero-2
+Hero section variant 2 for 433770f4-e99a-4769-869a-56ccb850d840
